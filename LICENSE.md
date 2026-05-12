@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with secure geckoterminal sniper bot | new-token-detection + auto-sell, the #1 geckoterminal sniper bot. Includes new-token-detection and auto-sell for a
 
 
 
